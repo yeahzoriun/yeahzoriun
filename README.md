@@ -1,4 +1,4 @@
-## C/C++ Developer from hell 🦷🔪🥩
+## C++ Developer from hell 🦷🔪🥩
 
 *m13 -> m14 💞♂️*  
 
