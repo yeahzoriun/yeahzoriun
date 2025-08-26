@@ -2,7 +2,7 @@
 
 ## C++ Developer from hell 🦷🔪🥩
 
-*m13 -> m14 💞♂️*  
+*m13 -> 14 💞♂️*  
 
 *Inquiries handled via [Discord](https://discord.com):* **@yeahzoriun**  
 
